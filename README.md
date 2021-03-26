@@ -6,3 +6,4 @@
 ### Friday
 - Dave: 🍝 Spagetti Squash
 - Jordan: M&Ms
+- Dave: 🍔 hamburger
